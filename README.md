@@ -1,0 +1,1 @@
+# nuosi_mini
